@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @AbsotivelyPawsilutely
-- 👀 I’m interested in ... Games, movies, music, animals, learning stuff, plushies, robots/animatronics, arts/crafts, how long have you got?
+- 👋 Hi, I’m @AbsotivelyPawsilutely (aspiring solo indie game-dev - I don't need to "make it" I just need to make stuff)
+- 👀 I’m interested in ... Games, movies, music, animals, learning stuff, plushies, robots/animatronics, arts/crafts... how long have you got?
 - 🌱 I’m currently learning ... Game development, Frech, Japanese, Scottish Gaelic, Swedish... I keep busy
 - 📫 How to reach me ... Will update this once there's a reason to reach me XD
 - 😄 Pronouns: ... They/Them
